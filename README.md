@@ -2,7 +2,7 @@
 - Currently Developing two games: Endless Nights & DinoDash
 - Based in Tampa Florida
 
-- 📫 How to reach me
+- 📫 How to reach me...
 - Twitter/Insta: ChrisOP.eth | Discord: ChrisOP.ETH#5653
 
     
