@@ -3,7 +3,7 @@
 - Based in Tampa Florida
 
 - 📫 How to reach me (Below) 
-- Twitter/Insta: 0xChrisOP | Discord: ChrisOP
+- Discord: ChrisOP
 
     
 
